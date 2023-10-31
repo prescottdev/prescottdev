@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Anything DevOps**
 
-- 📫 How to reach me **prescottdayo1@gmail.com**
+- 📫 How to reach me **prescott.dayo@techconsulting.tech**
 
 - ⚡ Fun fact **I'm always down for a good laugh**
 
